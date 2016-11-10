@@ -9,3 +9,5 @@ Nothing exists in the way we all accept. There is a physical universe but we are
 The simulation arguement is a powerful philosophical idea, presented in it's most muscular form in Swedish Nick from Oxford reference here. 
 
 I first encountered it in 1995 when I stumbled across a mailing list called the Extropians, where some wierd and wacky people hung out, expounding and dissecting ideas about the future ina  wierd and wonderful way. I had recently read Drexler's Engines of Creation and Stephenson's The diamind age. I was devouring new nanotech sci-fi and some how found my self with max More's happy bamd. Max More is a californian futurist who along with his long time collobaroator rona vita longlife whatver set up the Extropian Institute awebsite to publisgh and discuss idaes about radical transhumanism
+
+They themselves appeared to be heavily influenced by Ayn rand who I'd also just discovered with disgust, a philosophicaljustification for selfishness that now underpins the right in the US. But they gathered around them a weird and wacky bunch of adventurers on the crest of the exponential spread oand cross fertilisation of these ideas
